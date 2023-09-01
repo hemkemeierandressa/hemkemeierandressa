@@ -8,7 +8,9 @@ eu sou a andressa
 
 ### você pode entrar em contato comigo ⤵️
 andressa.hemkemeier@escola.pr.gov.br
+
 @andressa_s_hemkemeier
-https://media.tenor.com/SjZVtFSqWScAAAAM/pikachu-pokemon.gif
+
+
 ![](https://media.tenor.com/kDL2dLiZ38AAAAAC/quby-chan.gif)
 
