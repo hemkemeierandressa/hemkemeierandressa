@@ -1,16 +1,14 @@
-### Hi there 👋
+### bem vindos 💜
 
-<!--
-**hemkemeierandressa/hemkemeierandressa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+eu sou a andressa
 
-Here are some ideas to get you started:
+-Estou estudando na [Alura](https://www.alura.com.br)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+-estou me desenvolvendo no JavaScript
+
+### você pode entrar em contato comigo ⤵️
+andressa.hemkemeier@escola.pr.gov.br
+@andressa_s_hemkemeier
+https://media.tenor.com/SjZVtFSqWScAAAAM/pikachu-pokemon.gif
+![](https://media.tenor.com/kDL2dLiZ38AAAAAC/quby-chan.gif)
+
