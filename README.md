@@ -12,5 +12,5 @@ andressa.hemkemeier@escola.pr.gov.br
 @andressa_s_hemkemeier
 
 
-![](https://media.tenor.com/kDL2dLiZ38AAAAAC/quby-chan.gif)
+![]https://media.tenor.com/pF1FyWjzHkoAAAAM/buongiorno-good-morning.gif()
 
