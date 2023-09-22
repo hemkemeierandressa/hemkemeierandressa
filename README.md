@@ -12,5 +12,4 @@ andressa.hemkemeier@escola.pr.gov.br
 @andressa_s_hemkemeier
 
 
-![](https://media.tenor.com/pF1FyWjzHkoAAAAM/buongiorno-good-morning.gif)
-
+https://media.tenor.com/IfLIK8vJYIUAAAAC/awww-boo.gif
